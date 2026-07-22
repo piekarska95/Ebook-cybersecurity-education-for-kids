@@ -5,3 +5,7 @@ Create an educational series (e.g., webinars, social media posts, workshops) aim
 
 POLISH: EDUKACJA Z ZAKRESU BEZPIECZEŃSTWA CYBERNETYCZNEGO
 Stwórz serię edukacyjną (np. webinaria, posty na social media, warsztaty) skierowaną do użytkowników lub pracowników, aby podnieść ich świadomość bezpieczeństwa.
+
+
+
+Work in progress
