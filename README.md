@@ -8,4 +8,4 @@ Stwórz serię edukacyjną (np. webinaria, posty na social media, warsztaty) ski
 
 
 
-Work in progress
+LINK: https://levelupbezpieczniwsieci.my.canva.site/
